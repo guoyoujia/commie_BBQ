@@ -8,18 +8,18 @@ This is a standardized recipe my dad adapted from former Soviet Union.
 
 I always use lamb with this recipe but mutton and goat are presumably good as well.
 
-1) 3 pound of lamb shoulder or hind shank.
-2) 3 big red onions.
+- 3 pound of lamb shoulder or hind shank.
+- 3 big red onions.
 
 ## Marinade
 
 The basal marinade can be premade by mixing all the liquids with sugar and stored in fridge. Fennel seed needs to be added right before marination. Every pound meat together with one onion need 1/4 cup of premade marinade.
 
-1) 1/4 cup of huangjiu (Chinese: 黄酒; 'yellow wine').
-2) 1/4 cup of laochou (Chinese: 老抽; 'dark soy sause').
-3) 1/4 cup of shengchou (Chinese: 生抽; 'light soy sause').
-4) 4 tea spoon of sugar.
-5) 2 ounces of fennel seed.
+- 1/4 cup of huangjiu (Chinese: 黄酒; 'yellow wine').
+- 1/4 cup of laochou (Chinese: 老抽; 'dark soy sause').
+- 1/4 cup of shengchou (Chinese: 生抽; 'light soy sause').
+- 4 tea spoon of sugar.
+- 2 ounces of fennel seed.
 
 **Example 1 pound of meat**
 
