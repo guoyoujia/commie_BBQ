@@ -28,7 +28,7 @@ The basal marinade can be premade by mixing all the liquids with sugar and store
 - 1/4 cup of basal marinade.
 - 0.7 ounce of fennel seed.
 
-**Example 3 pound of meat**
+**Example 3 pounds of meat**
 
 - 3 pound meat.
 - 3 big red onion.
