@@ -6,7 +6,7 @@ This is a standardized recipe my dad adapted from former Soviet Union.
 
 ## Ingredients
 
-I always use lamb with this recipe but mutton and goat is presumably good as well.
+I always use lamb with this recipe but mutton and goat are presumably good as well.
 
 1) 3 pound of lamb shoulder or hind shank.
 2) 3 big red onions.
