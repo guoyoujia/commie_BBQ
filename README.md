@@ -13,7 +13,7 @@ I always use lamb with this recipe but mutton and goat are presumably good as we
 
 ## Marinade
 
-The basal marinade can be premade by mixing all the liquids with sugar and stored in fridge. Fennel seed needs to be added right before marination. Every pound meat together with one onion need 1/4 cup of premade marinade.
+The basal marinade can be premade by mixing all the liquids with sugar and stored in fridge. Fennel seed needs to be added right before marination. One big red onion and 1/4 cup of premade marinade are needed per pound of meat.
 
 - 1/4 cup of huangjiu (Chinese: 黄酒; 'yellow wine').
 - 1/4 cup of laochou (Chinese: 老抽; 'dark soy sause').
